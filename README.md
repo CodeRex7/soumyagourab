@@ -1,2 +1,2 @@
 # soumyagourab
-Visit the website at https://sonurex.github.io/soumyagourab/
+Visit the website at http://soumyagourabsahoo.me/
